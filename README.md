@@ -1,4 +1,19 @@
 # Rahul-Washers-And-DryCleaners
 
-##Shardul Apartment Shop Unpaiders List
+**Shardul Apartment Shop Unpaiders List (Long Period)**
+
+**शार्दुल अपार्टमेंट शॉप बिल न भरणाऱ्यांची यादी (दीर्घ कालावधी)**
+
+1.Datta Babar दत्ता बाबर
+
+2.Lata Shah लता शहा
+
+3.Bharat Titkare भरत टिटकारे
+
+4.Nilesh Joshi निलेश जोशी
+
+There are more add soon .........
+लवकरच आणखी जोडले जात आहेत .........
+
+
 
