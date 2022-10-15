@@ -4,19 +4,21 @@
 
 **शार्दुल अपार्टमेंट शॉप उधारीची यादी**
 
-1.Datta Babar दत्ता बाबर
+Datta Babar दत्ता बाबर
 
-2.Lata Shah लता शहा
+Lata Shah लता शहा
 
-3.Bharat Titkare भरत टिटकारे - अंश बिल्डिंग
+Bharat Titkare भरत टिटकारे - अंश बिल्डिंग
 
-4.Nilesh N. Joshi निलेश नं. जोशी
+Nilesh N. Joshi निलेश नं. जोशी
 
-5.Viky Babar विकी बाबर
+Viky Babar विकी बाबर
 
-6.J.R. Chavhan ज.रा.चव्हाण
+J.R. Chavhan ज.रा.चव्हाण
 
-7.Anvalikar अनवलीकर
+Anvalikar अनवलीकर
+
+Eshan Bhagwat इशान भागवत-साई अविष्कार
 
 There are more add soon .........
 
