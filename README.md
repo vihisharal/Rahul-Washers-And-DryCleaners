@@ -16,7 +16,7 @@ Nilesh N. Joshi निलेश नं. जोशी
 
 Viky Babar विकी बाबर
 
-J.R. Chavhan ज.रा.चव्हाण
+Janardhan R. Chavhan जनार्धन.रा.चव्हाण
 
 Anvalikar अनवलीकर
 
