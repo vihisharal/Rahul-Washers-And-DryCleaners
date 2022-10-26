@@ -35,7 +35,7 @@ Zende झेंडे-आलोक पार्क
 
 Prathamesh प्रथमेश
 
-A.R.Chakankar अ.र.चाकनकर
+A.R.Chakankar अ.र.चाकणकर
 
 There are more add soon .........
 
