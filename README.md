@@ -21,7 +21,7 @@ Janardhan R. Chavhan जनार्धन.रा.चव्हाण
 
 K. Anvalikar कौ.अनवलीकर
 
-Eshan Bhagwat इशान भागवत-साई अविष्कार
+Eshan Bhagwat इशान गुरुप्रसाद भागवत-साई अविष्कार
 
 Anushka Sunny Chavhan अनुष्का सनी चव्हाण
 
