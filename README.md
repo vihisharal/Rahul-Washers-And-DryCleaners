@@ -19,11 +19,11 @@ Viky Babar विकी बाबर
 
 Janardhan R. Chavhan जनार्धन.रा.चव्हाण
 
-Anvalikar अनवलीकर
+K. Anvalikar कौ.अनवलीकर
 
 Eshan Bhagwat इशान भागवत-साई अविष्कार
 
-Anushka S.Chavhan अनुष्का स.चव्हाण
+Anushka Sunny Chavhan अनुष्का सनी चव्हाण
 
 Amit Patil अमित पाटील-साई अविष्कार
 
@@ -31,7 +31,7 @@ Swapnil S.Chavhan स्वप्निल स.चव्हाण
 
 Zende झेंडे-आलोक पार्क
 
-Prathamesh प्रथमेश
+Prathamesh D प्रथमेश धो.
 
 A.R.Chakankar अ.र.चाकणकर
 
