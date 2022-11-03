@@ -1,7 +1,5 @@
 # Rahul-Washers-And-DryCleaners
 
-## सुट्टीची नोंद खाली शेवटी आहे.
-
 ## **शार्दुल अपार्टमेंट शॉप उधारीची यादी**
 ## **Unpaid List**
 
@@ -24,8 +22,6 @@ K. Anvalikar कौ.अनवलीकर
 Eshan Bhagwat इशान गुरुप्रसाद भागवत-साई अविष्कार
 
 Anushka Sunny Chavhan अनुष्का सनी चव्हाण
-
-Amit Patil अमित पाटील-साई अविष्कार
 
 Swapnil S.Chavhan स्वप्निल स.चव्हाण
 
