@@ -25,10 +25,6 @@ Anushka Sunny Chavhan अनुष्का सनी चव्हाण
 
 Swapnil S.Chavhan स्वप्निल स.चव्हाण
 
-Zende झेंडे-आलोक पार्क
-
-Prathamesh D प्रथमेश धो.
-
 A.R.Chakankar अ.र.चाकणकर
 
 There are more add soon .........
