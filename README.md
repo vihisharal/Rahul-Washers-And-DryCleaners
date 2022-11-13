@@ -9,9 +9,7 @@ Lata Shah लता शहा - शहा फार्म
 
 Madhuara Deshmukh मधुरा देशमुख-श्रेयश विहार
 
-Bharat Titkare भरत टिटकारे - अंश बिल्डिंग
-
-Nilesh N. Joshi निलेश नं. जोशी
+Nilesh Nandkishor Joshi निलेश नंदकिशोर जोशी
 
 Viky Babar विकी बाबर
 
