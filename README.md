@@ -8,8 +8,6 @@ Datta Babar दत्ता बाबर
 
 Lata Shah लता शहा - शहा फार्म
 
-Shinde शिंदे श्रेयश गार्डन
-
 Madhuara Deshmukh मधुरा देशमुख-श्रेयश विहार
 
 Nilesh Nandkishor Joshi निलेश नंदकिशोर जोशी
