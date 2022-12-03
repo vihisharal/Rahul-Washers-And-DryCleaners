@@ -17,10 +17,6 @@ Viky Babar विकी बाबर 170 Rs
 
 Janardhan R. Chavhan जनार्धन.रा.चव्हाण variable
 
-Kaustubh Anvalikar कौस्तुभ अनवलीकर-अंश बिल्डिंग 220 Rs
-
-Prathamesh Dhotre प्रथमेश धोत्रे 90 Rs
-
 Anushka Sunny Chavhan अनुष्का सनी चव्हाण 55₹ 
 
 Swapnil S.Chavhan स्वप्निल स.चव्हाण variable
