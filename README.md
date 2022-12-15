@@ -24,8 +24,6 @@ Viky Babar विकी बाबर 170 Rs
 
 Janardhan R. Chavhan जनार्धन.रा.चव्हाण variable
 
-Anushka Sunny Chavhan अनुष्का सनी चव्हाण 55₹ 
-
 Swapnil S.Chavhan स्वप्निल स.चव्हाण variable
 
 A.R.Chakankar अ.र.चाकणकर variable
