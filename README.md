@@ -5,7 +5,7 @@
 ## **जर वेळेत मिळाली तरच उधारी द्यायला काही वाटत नाही मागण्यास भाग पड़त असेल तर ती नकोच**
 
 
-![Udhari Image](https://github.com/vihisharal/Rahul-Washers-And-DryCleaners/blob/main/2.jpg?raw=true)
+![Udhari Image](2.jpg)
 
 
 ## **Unpaid List**
@@ -35,5 +35,5 @@ There are more add soon .........
 ## -------------------------
 
 
-![Udhari Image](https://github.com/vihisharal/Rahul-Washers-And-DryCleaners/blob/main/2.jpg?raw=true)
+![Udhari Image](2.jpg)
 
