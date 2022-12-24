@@ -27,8 +27,6 @@ Janardhan R. Chavhan जनार्धन.रा.चव्हाण 1064 Rs
 
 Seema Rathod सीमा राठोड 168₹
 
-Akash Pokale आकाश पोकळे 407₹
-
 SSS 98₹
 
 AK 216₹
