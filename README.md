@@ -22,7 +22,17 @@ Nilesh Nandkishor Joshi निलेश नंदकिशोर जोशी 12
 
 Viky Datta Babar विकी दत्ता बाबर 170 Rs
 
-Janardhan R. Chavhan जनार्धन.रा.चव्हाण variable
+Janardhan R. Chavhan जनार्धन.रा.चव्हाण 1064 Rs
+
+Seema Rathod सीमा राठोड 168₹
+
+Akash Pokale आकाश पोकळे 407₹
+
+SSS 98₹
+
+AK 216₹
+
+Sachin Patil सचिन पाटिल 106₹
 
 Swapnil S.Chavhan स्वप्निल स.चव्हाण variable
 
