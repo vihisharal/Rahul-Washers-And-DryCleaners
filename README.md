@@ -32,6 +32,8 @@ SSS 98₹
 
 AK 216₹
 
+VM 80₹
+
 Sachin Patil सचिन पाटिल 106₹
 
 Swapnil S.Chavhan स्वप्निल स.चव्हाण variable
