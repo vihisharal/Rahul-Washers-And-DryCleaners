@@ -27,8 +27,6 @@ Viky Datta Babar विकी दत्ता बाबर 170 Rs
 
 Janardhan R. Chavhan जनार्धन.रा.चव्हाण 1064 Rs
 
-Seema Rathod सीमा राठोड 168₹
-
 SSS 98₹
 
 AK 216₹
