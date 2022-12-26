@@ -25,10 +25,6 @@ Viky Datta Babar विकी दत्ता बाबर 170 Rs
 
 Janardhan R. Chavhan जनार्धन.रा.चव्हाण 1064 Rs
 
-SSS 98₹
-
-AK 216₹
-
 VM 80₹
 
 Sachin Patil सचिन पाटिल 106₹
