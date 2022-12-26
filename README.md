@@ -19,8 +19,6 @@ Datta Babar दत्ता बाबर 1865 Rs
 
 Lata Shah लता शहा - शहा फार्म 375 Rs
 
-Mohan Natekar मोहन नाटेकर 207₹ 
-
 Madhuara Deshmukh मधुरा देशमुख-श्रेयश विहार 30 Rs
 
 Nilesh Nandkishor Joshi निलेश नंदकिशोर जोशी 120 Rs
