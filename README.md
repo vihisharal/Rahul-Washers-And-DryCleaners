@@ -25,7 +25,7 @@ Viky Datta Babar विकी दत्ता बाबर 170 Rs
 
 VM 80₹
 
-Sachin Patil सचिन पाटिल 106₹
+Khushboo Salunke खुशबु सालुंके-साई अविष्कार 332₹
 
 Swapnil S.Chavhan स्वप्निल स.चव्हाण variable
 
