@@ -23,10 +23,6 @@ Nilesh Nandkishor Joshi निलेश नंदकिशोर जोशी 12
 
 Viky Datta Babar विकी दत्ता बाबर 170 Rs
 
-VM 80₹
-
-Khushboo Salunke खुशबु सालुंके-साई अविष्कार 332₹
-
 Swapnil S.Chavhan स्वप्निल स.चव्हाण variable
 
 A.R.Chakankar अ.र.चाकणकर variable
