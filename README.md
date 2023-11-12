@@ -13,21 +13,11 @@
 
 Sagar Bhadirge-Sai Car Care सागर भदिरगे 12₹
 
-Datta Babar दत्ता बाबर Blocked
-
 Lata Shah लता शहा - शहा फार्म 375 Rs
 
 Madhuara Deshmukh मधुरा देशमुख-श्रेयश विहार 30 Rs
 
 Nilesh Nandkishor Joshi निलेश नंदकिशोर जोशी 120 Rs
-
-Viky Datta Babar विकी दत्ता बाबर Blocked
-
-K.Anvalikar कौस्तुभ अनवलिकर-अंश बिल्डिंग 146₹
-
-Swapnil S.Chavhan स्वप्निल स.चव्हाण variable
-
-A.R.Chakankar अ.र.चाकणकर variable
 
 There are more add soon .........
 
