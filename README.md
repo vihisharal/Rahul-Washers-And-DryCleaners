@@ -26,6 +26,14 @@ Nilesh Nandkishor Joshi निलेश नंदकिशोर जोशी 12
 
 Mangesh Dashpute मंगेश दशपुते 20₹ 
 
+Purushottam Deshpande पुरुषोत्तम देशपांडे 20₹
+
+Varkhedkar वरखेड़कर 60₹ 
+
+Hrushilesh Kulkarni हृषिकेश सुधींद्र कुलकर्णी 12₹
+
+Dada Chavhan दादा चव्हाण 60₹
+
 There are more add soon .........
 
 लवकरच आणखी जोडले जात आहेत .........
