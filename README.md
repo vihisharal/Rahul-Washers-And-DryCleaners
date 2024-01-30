@@ -18,7 +18,7 @@
 
 Sagar Bhadirge-Sai Car Care सागर भदिरगे 12₹
 
-Lata Shah लता शहा - शहा फार्म 375 Rs
+Lata Ajit Shah लता अजित शहा - शहा फार्म 375 Rs
 
 Madhuara Deshmukh मधुरा देशमुख-श्रेयश विहार 30 Rs
 
@@ -26,7 +26,9 @@ Nilesh Nandkishor Joshi निलेश नंदकिशोर जोशी 12
 
 Mangesh Dashpute मंगेश दशपुते 20₹ 
 
-Purushottam Deshpande पुरुषोत्तम देशपांडे 20₹
+Archana R Chakankar अर्चना र चाकणकर 2434₹
+
+Hemant Rajguru हेमंत राजगुरु 76₹
 
 Varkhedkar वरखेड़कर 60₹ 
 
