@@ -33,8 +33,6 @@ Archana R Chakankar अर्चना र चाकणकर 2434₹
 
 Hemant Rajguru हेमंत राजगुरु 76₹
 
-Varkhedkar वरखेड़कर 60₹ 
-
 Hrushilesh Kulkarni हृषिकेश सुधींद्र कुलकर्णी 12₹
 
 Dada Chavhan दादा चव्हाण 60₹
