@@ -35,8 +35,6 @@ Hemant Rajguru हेमंत राजगुरु 76₹
 
 Hrushilesh Kulkarni हृषिकेश सुधींद्र कुलकर्णी 12₹
 
-Dada Chavhan दादा चव्हाण 60₹
-
 There are more add soon .........
 
 लवकरच आणखी जोडले जात आहेत .........
