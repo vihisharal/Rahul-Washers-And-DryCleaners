@@ -29,9 +29,7 @@ Nilesh Nandkishor Joshi निलेश नंदकिशोर जोशी 12
 
 Mangesh Dashpute-Shardul मंगेश दशपुते-शार्दुल 20₹ 
 
-Archana ravindra Chakankar अर्चना रविंद्र चाकणकर 49₹
-
-Hemant Rajguru हेमंत राजगुरु 76₹
+Archana ravi Chakankar अर्चना रवी चाकणकर 49₹
 
 Hrushilesh Kulkarni हृषिकेश सुधींद्र कुलकर्णी 12₹
 
