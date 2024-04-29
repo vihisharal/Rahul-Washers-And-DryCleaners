@@ -17,7 +17,7 @@
 ![Udhari Image](2.jpg)
 
 
-## **Unpaid List उधारीवाले**
+## **उधारीवाले**
 
 Sagar Bhadirge-Sai Car Care सागर भदिरगे 12₹
 
