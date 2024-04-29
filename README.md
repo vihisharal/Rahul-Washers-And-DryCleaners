@@ -21,8 +21,6 @@
 
 Sagar Bhadirge-Sai Car Care सागर भदिरगे 12₹
 
-Lata Ajit Shah लता अजित शहा - शहा फार्म 375 Rs
-
 Madhuara Deshmukh मधुरा देशमुख-श्रेयश विहार 30 Rs
 
 Nilesh Nandkishor Joshi निलेश नंदकिशोर जोशी 120 Rs
