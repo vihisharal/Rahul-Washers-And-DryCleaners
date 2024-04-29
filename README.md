@@ -19,17 +19,17 @@
 
 ## **उधारीवाले**
 
-Sagar Bhadirge-Sai Car Care सागर भदिरगे 12₹
+सागर भदिरगे-साई कार केयर 12₹
 
-Madhuara Deshmukh मधुरा देशमुख-श्रेयश विहार 30 Rs
+मधुरा देशमुख-श्रेयश विहार 30 Rs
 
-Nilesh Nandkishor Joshi निलेश नंदकिशोर जोशी 120 Rs
+निलेश नंदकिशोर जोशी 120 Rs
 
-Mangesh Dashpute-Shardul मंगेश दशपुते-शार्दुल 20₹ 
+मंगेश दशपुते-शार्दुल 20₹ 
 
-Archana ravi Chakankar अर्चना रवी चाकणकर 49₹
+अर्चना रवी चाकणकर 49₹
 
-Hrushilesh Kulkarni हृषिकेश सुधींद्र कुलकर्णी 12₹
+हृषिकेश सुधींद्र कुलकर्णी 12₹
 
 There are more add soon .........
 
