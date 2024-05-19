@@ -86,3 +86,4 @@
 
 ## Don't Waste Someone Else Working Time.
 ## You Are Free It Doesn't Mean Else Also Available To You.
+## जर तुम्हाला दुसऱ्यांच्या वेळेची किंमत नाही , तर त्या व्यक्तीकडुन पण तुमची किंमत केली जाईल अशा भ्रमात राहु नका .
