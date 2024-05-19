@@ -77,3 +77,4 @@
 9. आशा आहे पुढील वेळेस तुमचा मौल्यवान वेळ नाही जाणार चर्चा करण्यात. का ? कश्याला? कसे? हे विचारण्यात.
 
 ## Don't Waste Someone Else Working Time.
+## You Are Free It Doesn't Mean Else Also Available To You
