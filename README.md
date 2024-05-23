@@ -56,6 +56,7 @@
 
 ## -------------------------
 
+![Udhari Image](rate_note.jpg)
 
 # Notes
 
