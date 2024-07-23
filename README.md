@@ -55,7 +55,6 @@
 # **-----------**
 
 ![PressInfo.jpg](https://github.com/user-attachments/assets/0d97ab8d-a29f-4bd5-b75d-e7e7a0701b1b)
-![Udhari Image](rate_note.jpg)
 
 # Note
 
