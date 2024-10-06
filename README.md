@@ -89,3 +89,4 @@
 ## कोणताही दुकानदार जाळणे/फाटने हे मुद्दाम करत नसतो.
 ## जर आपणास वरील पैकी एक जरी मुद्दा पटला नसेल तर आपण इथे न येणे हेच योग्य. बाहेरून कपडे मारणे हे आपल्या साठी नाहीच, यापेक्षा आपण आपले कपडे घरीच करावीत (प्रेस/धुलाई/ड्रायक्लीन).
 ## You Are Free It Doesn't Mean Else Also Available To You.
+## Some people only get understand,If other also that speak same language. Example: Angry people only understand ,if other also speak in angry tone to them.
