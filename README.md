@@ -90,3 +90,4 @@
 ## जर आपणास वरील पैकी एक जरी मुद्दा पटला नसेल तर आपण इथे न येणे हेच योग्य. बाहेरून कपडे मारणे हे आपल्या साठी नाहीच, यापेक्षा आपण आपले कपडे घरीच करावीत (प्रेस/धुलाई/ड्रायक्लीन).
 ## You Are Free It Doesn't Mean Else Also Available To You.
 ## Some people only get understand,If other also speak that same language. Example: An angry person knows only the language of anger.
+## If a person is giving hard work advice but that person himself is living on the commission of other's hard work and such a person is giving you advice then beware because these people are very dangerous.
