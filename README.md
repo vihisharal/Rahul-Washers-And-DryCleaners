@@ -9,7 +9,6 @@
 
 # **-----------**-----------**
 ![Holiday_Note Note Image](overlay-image.png)
-![Press_Rate_2025 Image](2025_Press.jpg)
 
 ## **Holiday_Note**
 ## **सुट्टीची नोंद खाली आहे .**
