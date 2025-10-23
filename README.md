@@ -8,7 +8,8 @@
 ## **ज्यावेळी दुकान बंद त्यावेळी No कॉल , No msg .**
 
 # **-----------**-----------**
-![Holiday Note Image](2025_Press.jpg)
+![Holiday_Note Note Image](overlay-image.png)
+![Press_Rate_2025 Image](2025_Press.jpg)
 
 ## **Holiday_Note**
 ## **सुट्टीची नोंद खाली आहे .**
@@ -23,7 +24,7 @@
 
 ## **कपड्याप्रमाणे कपड्याचे दर पण वेगळे असतील आणि ते प्रेस करतानाच ठरवले जाईल आगोदर नाही.**
 
-![Press_Rate_2025 Note Image](overlay-image.png)
+![Press_Rate_2025 Note Image](2025_Press.jpg)
 # **-----------**-----------**
 
 ## **उधारी बंद आहे**
